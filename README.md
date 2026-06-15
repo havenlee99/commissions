@@ -1,3 +1,1 @@
-# commissions
-my commissions are OPEN
-<img src="https://ibb.co/VWFwZNpf.png">
+<img src="https://imgur.com/a/TJKqoHj">
